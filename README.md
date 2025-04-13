@@ -1,0 +1,1 @@
+# HackCarpathia_AI_Lot
